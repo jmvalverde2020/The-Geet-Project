@@ -1,5 +1,0 @@
-# Puta
-
-## Barata 
-
-jaja funny
